@@ -1,4 +1,4 @@
-# 💫                    SRUJAN VUYYURU
+# 💫########################################SRUJAN VUYYURU
  🔭I'm currently pursuing my btech 3rd year in MIC College of technology<br>  👓blockchain enthusiastic<br>🌱 I’m currently learning everything 🤣
 
 
