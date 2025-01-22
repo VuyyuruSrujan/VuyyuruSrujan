@@ -18,4 +18,6 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=VuyyuruSrujan&icon=0&color=0)](https://visitcount.itsvg.in)
 
+[WakaTime](https://wakatime.com/@srujan_vuyyuru)).
+
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
