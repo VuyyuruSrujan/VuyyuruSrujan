@@ -1,5 +1,5 @@
 # 💫SRUJAN VUYYURU
- 🔭I'm currently pursuing my btech 3rd year in MIC College of technology<br>💼 Currently workings as a DEVREL in the icp student chapter @Mic college of technology.<br> 🎓Cracked Risein interview and selected as a Student Maven.<br> 👓blockchain enthusiastic<br>🌱 I’m currently learning everything 🤣
+ 🔭I'm currently pursuing my btech 3rd year in MIC College of technology<br>💼 Currently workings as a DEVREL in the icp student chapter @Mic college of technology.<br> 🎓Cracked Risein interview and selected as a Student Maven.<br> 👓blockchain enthusiastic<br>🌱 I’m currently learning everything 🤣 <br><br>My Portfolio:https://srujan-2nra.onrender.com/
 
 
 ## 🌐 Socials:
