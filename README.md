@@ -1,5 +1,5 @@
 # 💫SRUJAN VUYYURU
- 💼 Currently workings as a DEVREL in the icp student chapter @Mic college of technology.<br> 🎓Cracked Risein interview and selected as a Student Maven.<br> 👓blockchain enthusiastic<br>🌱 I’m currently learning everything 🤣 <br><br>My Portfolio:https://srujan-2nra.onrender.com/
+ 💼 Currently workings as a DEVREL @ICP_INDIA_HUB.<br> 🎓Cracked Risein interview and selected as a Maven.<br> 👓blockchain enthusiastic<br>🌱 I’m currently learning everything 🤣 <br><br>My Portfolio:https://srujan-2nra.onrender.com/
 
 
 ## 🌐 Socials:
