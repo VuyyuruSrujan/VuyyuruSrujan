@@ -1,4 +1,4 @@
-# 💫SRUJAN VUYYURU
+<h1 align="center"># 💫SRUJAN VUYYURU</h1>
  <br>💼 Currently workings as a DEVREL @ICP_INDIA_HUB.<br> 🎓Cracked Risein interview and selected as a Maven.<br> 👓blockchain enthusiastic<br>🌱 I’m currently learning everything 🤣 <br><br>My Portfolio:https://srujan-2nra.onrender.com/
 
 
